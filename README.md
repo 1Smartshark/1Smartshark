@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding!
 - 🌱 I’m currently learning Javascript.
 - 💞️ I’m looking to collaborate on nothing right now.
-- 📫 How to reach me: email onesmartshark@gmail.com
+- 📫 How to reach me: find me (trust)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I don't feel like putting this here lol
 
